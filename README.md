@@ -27,13 +27,14 @@ In this ***Collage***, these are some of my favorite things, ranging from 3-5 st
 
 ||||
 |-|-|-|
-|Lionel Messi:|⭐⭐⭐⭐⭐:|He's the best soccer player in the world so thats why!
-|Soccer:|⭐⭐⭐⭐⭐:|Soccer is my favorite thing to play as a sport, and to watch as well
-|Math|⭐⭐⭐|I like math but to a certain extent
-|Mexico Trip|ab|ab
-|Hunter Hunterd|ab|ab
-|ab|ab|ab
-|ab|ab|ab
-|ab|ab|ab
-|ab|ab|ab
-|ab|ab|ab
+**Topic**|**Rating**|**Reason**     
+|*Lionel Messi:*|⭐⭐⭐⭐⭐:|He's the best soccer player in the world so thats why!
+|*Soccer:*|⭐⭐⭐⭐⭐:|Soccer is my favorite thing to play as a sport, and to watch as well
+|*Math:*|⭐⭐⭐|I like math but to a certain extent
+|*Mexico Trip:*|⭐⭐⭐⭐⭐|First time going and a memory I will never forget
+|*Hunter Hunter:*|⭐⭐⭐⭐⭐⭐|6/5 because this is the best anime my eyes have EVER laid on in MY LIFE
+|*Pozole:*|⭐⭐⭐⭐⭐|My moms pozole is delicious, and is by far my favorite food!
+|*Traveling*|⭐⭐⭐⭐|Traveling is something I love doing 
+|*Playing Tenor Sax*|⭐⭐⭐|This was something I enjoyed doing, but I recently stopped playing the instrument.
+|*Rocket League*|⭐⭐⭐⭐|I love the game a lot so it's a 4/5 cause I play sometimes.
+|*The Dark Knight*|⭐⭐⭐⭐|I love this movie, but im waiting for something ***better*** maybe comin gin the next couple of years.
